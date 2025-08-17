@@ -73,4 +73,4 @@
 
 
 
-COPY AND PASTE IN NOTEPAD IDIOT AND ZOOM OUT, A BIT ! (only for good pcs your weak ahh laptop wont cut)
+COPY AND PASTE IN NOTEPAD IDIOT AND ZOOM OUT IN LIGHT MODE SETTINGS, A BIT ! (only for good pcs your weak ahh laptop wont cut) 
